@@ -1,4 +1,4 @@
-### Hi there 👋
+You can call me Deaaa. Welcome to my github account. Have a nice day and enjoy your time :)
 
 <!--
 **deanurzuraidah/deanurzuraidah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
